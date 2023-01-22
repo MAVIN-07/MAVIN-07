@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 🌱 Problem solver with a knack of thinking out-of-the-box.
 - 👯 Loves to brainstorm problems having business impacts and come up with efficient solutions using technology.
 - 💬 Feel free to discuss business or technical ideas with me.
-- 📫 Reach out to me: **[GMail](mailto:sambitmishra1968@gmail.com)** **[Linkedin](https://www.linkedin.com/in/mishra-sambit)** 
+- 📫 Reach out to me: **[Gmail](mailto:sambitmishra1968@gmail.com)** ; **[Linkedin](https://www.linkedin.com/in/mishra-sambit)** 
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: You can check out my non-tech side at **[Instagram](https://www.instagram.com/_sambeats)** and **[Youtube](https://www.youtube.com/c/sambitmishra)**
 
